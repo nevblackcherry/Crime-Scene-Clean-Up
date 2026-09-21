@@ -208,4 +208,4 @@ Crime Scene Clean Up is offered as a **full free version** with all features and
 Get started with your investigations today! Download **Crime Scene Clean Up** and turn your detective dreams into reality!
 
 ---
-**Last updated:** 2026-09-20 23:43:39 UTC
+**Last updated:** 2026-09-21 01:49:25 UTC
